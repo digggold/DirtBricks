@@ -5,7 +5,7 @@ Forget the promises. Forget the hype.
 DirtBricks isn’t here to **convince** you of its worth—because **blockchains, tokens, and names have no inherent value**.  
 The **only** real value? **The fire in our souls. The strength of our hands. The force of our collective will.**  
 
-## The Almighty Walls Opportunity.  
+## The Almighty Walls of Opportunity.  
 DirtBricks doesn’t promise to be fast, cheap, or revolutionary. **It’s just a foundation**—**a pile of dirt and bricks**.  
 **What happens next? That’s on us.**  
 
